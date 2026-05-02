@@ -107,7 +107,7 @@ Artikel terkait: *Framework Python untuk Prediksi dan Penambahan Muatan Bola Baj
 
 ## Kontak
 
-[Muhammad 'Afif] — [email@domain.com]
+[Muhammad 'Afif] — [me@muhammadafif.web.id]
 
 ---
 
